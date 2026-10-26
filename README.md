@@ -1,2 +1,0 @@
-# IKAPD-MESIR
-SEKRE
